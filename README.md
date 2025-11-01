@@ -14,4 +14,4 @@ Team member : Kalpana A
 
 Team member : Lalzarmawii
 
-Demo Vedio Link:https://drive.google.com/file/d/19l_yyr6vvHBg_rKBQJuKjW4sQzGKcQVM/view?usp=sharing
+Demo Video Link:https://drive.google.com/file/d/19l_yyr6vvHBg_rKBQJuKjW4sQzGKcQVM/view?usp=sharing
